@@ -19,7 +19,7 @@
 
 <img width="400" height="44" alt="image" src="https://github.com/user-attachments/assets/b91d08fd-01cd-4001-89f2-56b51cb853c1" />
 
-. .┊ ⨳゛Sexuality : asexual, nebularomantic, pangender, transgedner, transmasc, transenby, aroace, demiboy, demifluid, genderfluid, 
+. .┊ ⨳゛Sexuality : asexual, nebularomantic, pangender, transgender, transmasc, transenby, aroace, demiboy, demifluid, genderfluid, 
 
 <img width="400" height="44" alt="image" src="https://github.com/user-attachments/assets/7f666e58-1e72-4907-b803-021834868adf" />
 

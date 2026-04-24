@@ -9,34 +9,34 @@
 
 <img width="400" height="44" alt="image" src="https://github.com/user-attachments/assets/19660849-dbab-446f-ae6d-13a68b3834af" />
 
-. .┊ ◟﹫ Name : toxicity/ proship-cahn /spookyfloofy/ floofy-kun/spooky-kun, chan, san, ect
+. .┊ ◟﹫ Name : toxicity/ proship-chan /spookyfloofy/ floofy-kun/spooky-kun, chan, san, ect
 
-. .┊﹒𐐪 Age :15-21 (this is due to alterss)
+. .┊﹒𐐪 Age :15-21 (this is due to alters, were an undiagnosed system)
 
 <img width="400" height="44" alt="image" src="https://github.com/user-attachments/assets/33447c92-8845-4877-8e43-f492840c24ca" />
 
-. .┊ꜝꜝ﹒Pronouns : he/xe/it/they/ :]
+. .┊ꜝꜝ﹒Pronouns : he/xe/it/they/:]
 
 <img width="400" height="44" alt="image" src="https://github.com/user-attachments/assets/b91d08fd-01cd-4001-89f2-56b51cb853c1" />
 
-. .┊ ⨳゛Sexuality : asexual, nebularomantic, pangender, transgender, transmasc, transenby, aroace, demiboy, demifluid, genderfluid, 
+. .┊ ⨳゛Sexuality : nebularomantic, transmasc, transenby, aroace, demiboy, demifluid, genderfluid, +400 xenogenders. 
 
 <img width="400" height="44" alt="image" src="https://github.com/user-attachments/assets/7f666e58-1e72-4907-b803-021834868adf" />
 
-. .┊ ◟ヾ Likes : anime, (one piece attack on titan solo leveling mob psycho 100 ect) art, my friends, being a silly felow, my girlfriend, project sekai, pinterest, spicy noodles
+. .┊ ◟ヾ Likes : anime, (one piece attack on titan solo leveling mob psycho 100 ect) art, my friends, being a silly felow, my fictional boyfriend, project sekai, pinterest, chicken noodles, pony town, my fictional boyfriend, debates, did i mention my fictional boyfriend? (teruki hanazawa) 
 
 <img width="400" height="44" alt="image" src="https://github.com/user-attachments/assets/71b4e430-cc45-4ed3-9757-6caaef006c82" />
 
-. .┊﹒𐐪 Dislikes :  weird textures, antis, literaly anyone who discriminates against valid minoroities.
+. .┊﹒𐐪 Dislikes :  weird textures, antis, literaly anyone who discriminates against valid minoroities, trumpies, anyone on my dni list ig?
 
 <img width="400" height="44" alt="image" src="https://github.com/user-attachments/assets/316b8624-5822-4f70-9fd7-9332875600d6" />
 
 
-. .┊ ◟﹫ Extra : i have DID, autisim, anxiety, OCD, depression, and TT so pls cater and be patieint! i hope i can make you smile! and maybe even a difference in the world someday
-   
+. .┊ ◟﹫ Extra : I AM MENTALLY ILL. Due to this i struggle a lot with certian things, i wont go into details as it is private but its IMPORTANT to note that i have (undiagnosed) DID, autisim, anxiety, OCD, depression, and TT so pls cater and be patieint! i am also a fiction kin of shigeo kageyama, he is also one of our alters, my f/o is teruki hanazawa (who i ship with shigeo). doubles can int :)
+
    ╰─────────────  ✦ ⁺.
 ⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚
-bleeeehh
+
 MY ATABOOK https://spookyfloofy.atabook.org/                
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/96702501-1752-4b23-a862-114e8e69b5a4" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/6710328d-3d88-4554-911d-376c61ecb70e" />

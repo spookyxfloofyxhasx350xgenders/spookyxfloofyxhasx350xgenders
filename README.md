@@ -9,17 +9,17 @@
 
 <img width="400" height="44" alt="image" src="https://github.com/user-attachments/assets/19660849-dbab-446f-ae6d-13a68b3834af" />
 
-. .┊ ◟﹫ Name : toxicity/ proship-chan /spookyfloofy/ floofy-kun/spooky-kun, chan, san, ect
+. .┊ ◟﹫ Name : toxicity/pro-chan /spookyfloofy/ floofy-kun/spooky-kun, chan, san, ect
 
 . .┊﹒𐐪 Age :15-21 (this is due to alters, were an undiagnosed system)
 
 <img width="400" height="44" alt="image" src="https://github.com/user-attachments/assets/33447c92-8845-4877-8e43-f492840c24ca" />
 
-. .┊ꜝꜝ﹒Pronouns : he/xe/it/they/:]
+. .┊ꜝꜝ﹒Pronouns : he/xe/it/they/:] just use he/him if its simpler!
 
 <img width="400" height="44" alt="image" src="https://github.com/user-attachments/assets/b91d08fd-01cd-4001-89f2-56b51cb853c1" />
 
-. .┊ ⨳゛Sexuality : nebularomantic, transmasc, transenby, demiboy, demifluid, genderfluid, +400 xenogenders. 
+. .┊ ⨳゛Sexuality : nebularomantic, transmasc, genderfluid, +400 xenogenders. you dont need to use all of them!
 
 <img width="400" height="44" alt="image" src="https://github.com/user-attachments/assets/7f666e58-1e72-4907-b803-021834868adf" />
 
@@ -32,11 +32,14 @@
 <img width="400" height="44" alt="image" src="https://github.com/user-attachments/assets/316b8624-5822-4f70-9fd7-9332875600d6" />
 
 
-. .┊ ◟﹫ Extra : I AM MENTALLY ILL. Due to this i struggle a lot with certian things, i wont go into details as it is private but its IMPORTANT to note that i have,(undiagnosed) DID, autisim, anxiety, OCD, depression, and TT so pls be patieint! 
+. .┊ ◟﹫ Extra : hi hi! i wont bite dont worry, i love making friends and joybaiting!! i hope i can make a diference and a put a smile on ur face, pls be nice to me and ill be nice to you too!!!!! um i dunno what to put here heh- bazinga i guess.
+
+Side note:
+I AM MENTALLY ILL. Due to this i struggle a lot with certian things, i wont go into details as it is private but its IMPORTANT to note that i have,(undiagnosed) DID, autisim, anxiety, OCD, depression, and TT so pls be patieint! 
 
 i am also a fiction kin of shigeo kageyama, he is also one of our alters, my f/o is teruki hanazawa (who i ship with shigeo). doubles can int :)
 
-SIDE NOTE: i do not "owe" you or anyone "proof" or an explanation of personal disorders. i can provide an explanation for things im NOT diagnosed with, but i likely wont be sharing much bc theres no point arguing with a stranger online about what i am, i know what i am so why should i care what they think?  i am also well aware that not everyone online will "cater" to my triggers, thats not how the internet works. so i can and will just close the tab when its needed. just be nice...its not that deep...
+SIDE NOTE 2: i do not "owe" you or anyone "proof" or an explanation of personal disorders. i can provide an explanation for things im NOT diagnosed with, but i likely wont be sharing much bc theres no point arguing with a stranger online about what i am, i know what i am so why should i care what they think?  i am also well aware that not everyone online will "cater" to my triggers, thats not how the internet works. so i can and will just close the tab when its needed. just be nice...its not that deep...
 
    ╰─────────────  ✦ ⁺.
 ⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚

@@ -37,6 +37,7 @@
 i am also a fiction kin of shigeo kageyama, he is also one of our alters, my f/o is teruki hanazawa (who i ship with shigeo). doubles can int :)
 
 SIDE NOTE: i do not "owe" you or anyone "proof" or an explanation of personal disorders. i can provide an explanation for things im NOT diagnosed with, but i likely wont be sharing much bc theres no point arguing with a stranger online about what i am, i know what i am so why should i care what they think?  i am also well aware that not everyone online will "cater" to my triggers, thats not how the internet works. so i can and will just close the tab when its needed. just be nice...its not that deep...
+
    ╰─────────────  ✦ ⁺.
 ⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚
 
